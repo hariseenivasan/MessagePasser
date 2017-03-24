@@ -1,3 +1,4 @@
+Please Refer https://docs.google.com/document/d/1t-lio4p_Ed5jemV2BwkdU9xqjOElVwydQ49adH5O91w/edit?usp=sharing
 1.  What are we targeting – Stepover Language Barrier with fun!
 
 2.  Who are we targeting – Multi Lingual group of friends
